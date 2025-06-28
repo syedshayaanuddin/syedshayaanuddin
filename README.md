@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on new coding friends
 - 📫 DM me for any group projects
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: im 18
+- ⚡ Fun fact: im 19
 
 <!---
 syedshayaanuddin/syedshayaanuddin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
